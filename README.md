@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **georgemathewpaul2012@gmail.com**
 
-- ⚡ Fun fact **I am a otaku**
+- ⚡ Fun fact **I am a otaku who loves hentai...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
