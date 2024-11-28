@@ -4,7 +4,7 @@ Hi 👋 My name is George Mathew Paul
 CS Engineer. 3D Artist. Student
 --------------------
 
-Love fun tech projects!!
+Passionate about unique and fun tech projects!!
 
 * 🌍  I'm based in Chennai, Tamil Nadu, India
 * ✉️  You can contact me at [georgemathewpaul2021@gmail.com](mailto:georgemathewpaul2012@gmail.com)
